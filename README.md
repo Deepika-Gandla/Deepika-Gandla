@@ -5,7 +5,7 @@
 
 - I participate in online tech communities and coding challenges to improve my skills.
 
-📌 Feel free 🗣️👤 to reach out to me at
+ 📌 Feel free 🗣️👤 to reach out to me at
 📩deepikagandla7456@gmail.com
 
 <!---
